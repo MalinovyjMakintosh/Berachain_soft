@@ -43,7 +43,7 @@
 ### Contacts
 
 - @malinmakinn - мой канал в Telegram
-- @wokeupp - моя телеграма
+- @wokeupp - мой телеграмм
 
 ### ❤️‍🔥 Donate (Any EVM)
 
